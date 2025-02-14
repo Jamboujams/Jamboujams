@@ -5,7 +5,7 @@
 - 📫 How to reach me 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: Donald Trump really was a president 
-- 🌐 https://www.kuvaajankulma.com/ https://www.kuvaajankulma.com/mallikuvaus https://www.kuvaajankulma.com/valokuvauspalvelut https://www.kuvaajankulma.com/tuotekuvaus https://www.kuvaajankulma.com/ulkokuvaus https://www.kuvaajankulma.com/fitnesskuvaus https://www.kuvaajankulma.com/boudoirkuvaus https://www.kuvaajankulma.com/perhekuvaus <!---
+- 🌐 https://www.kuvaajankulma.com/ https://www.kuvaajankulma.com/mallikuvaus https://www.kuvaajankulma.com/valokuvauspalvelut https://www.kuvaajankulma.com/tuotekuvaus https://www.kuvaajankulma.com/ulkokuvaus https://www.kuvaajankulma.com/fitnesskuvaus https://www.kuvaajankulma.com/boudoirkuvaus <!---
 Jamboujams/Jamboujams is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
