@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Jamboujams
-- 👀 I’m interested in learning how to use free chat gpts effectively,and what new things Windows and Microsoft is developing for us. And social media growth tips for small business 
+- 👀 I’m interested to learning how to use Copilot & chat gpts effectively to make my Web site SEO, content, coding & widget's 
 - 🌱 I’m currently learning little bit this and that 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on SEO and web site specialists, developer's 
 - 📫 How to reach me 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: Donald Trump really was a president 
